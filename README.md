@@ -1,7 +1,7 @@
 ## ♡ Hola, soy Daniela ♡ (˶>⩊<˶)
 ╰┈➤ Actualmente estoy estudiando un grado medio de informatica ≽^•⩊•^≼
 
-๋࣭ ⭑✮💻₊ ⊹ Grado Medio SMR Sistemas Microinformáticos ๋࣭ ⭑✮💻₊ ⊹
+   ๋࣭ ⭑✮💻₊ ⊹ Grado Medio SMR Sistemas Microinformáticos ๋࣭ ⭑✮💻₊ ⊹
 
 
 
